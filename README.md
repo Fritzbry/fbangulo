@@ -1,6 +1,7 @@
 # fbangulo
 
- Hi! I'm Fritz Bryan N . Angulo. Lets have some fun :blush:
+ Hi! I'm Fritz Bryan N . Angulo, 
+ I'm currently studying at West Visayas State University
  
 :heart_eyes:You can add and follow me through these:
 
